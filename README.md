@@ -1,5 +1,9 @@
 ## `greg.pink`
 
-[Pink](https://youtu.be/ZfbBqBOSXlU).  It's my new obsession.
+[**PINK**](https://youtu.be/ZfbBqBOSXlU)
 
-[Pink](https://youtu.be/ZfbBqBOSXlU).  It's not even a question.
+It's my new obsession.
+
+[**PINK**](https://youtu.be/ZfbBqBOSXlU)
+
+It's not even a question.
